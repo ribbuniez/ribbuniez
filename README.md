@@ -1,1 +1,1 @@
-![Banner1](https://raw.githubusercontent.com/ribbuniez/ribbuniez/main/Tumblr_l_1304910585175336.gif)
+![Banner1](https://raw.githubusercontent.com/ribbuniez/ribbuniez/main/Tumblr_l_1304896126923154.gif)
