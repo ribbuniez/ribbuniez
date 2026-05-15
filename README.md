@@ -4,4 +4,4 @@
 ![Banner1](https://raw.githubusercontent.com/ribbuniez/ribbuniez/main/Snapchat-1261298304.jpg) 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ✙ ㅤㅤ◞ㅤ ㅤart creds :ㅤkitsvx on pinterestㅤㅤㅤ⌒⌒. 
 
-![Banner1](https://raw.githubusercontent.com/ribbuniez/ribbuniez/main/Tumblr_l_1293602103167202.gif)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Banner1](https://raw.githubusercontent.com/ribbuniez/ribbuniez/main/Tumblr_l_1293602103167202.gif)
