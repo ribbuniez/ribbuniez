@@ -7,3 +7,4 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Banner1](https://raw.githubusercontent.com/ribbuniez/ribbuniez/main/Tumblr_l_1293602103167202.gif)
 # ᛝㅤ,, 💌ㅤfandoms　ྀིྀ ੭ˊ ﻌ ˋ ੭   
 kaiju Paradise, dandy's world, gravity falls, roblox, the amazing world of gumball, the amazing digital circus ꈍ◡ꈍ
+
