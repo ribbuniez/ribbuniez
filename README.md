@@ -9,6 +9,3 @@
 </div>
 <p align="center">STRAWPAGE COMING</p>
 
-# ᛝㅤ,, 💌ㅤfandoms　ྀིྀ ੭ˊ ﻌ ˋ ੭   
-kaiju Paradise, dandy's world, gravity falls, roblox, the amazing world of gumball, the amazing digital circus, gacha life, and mlp ꈍ◡ꈍ
-
