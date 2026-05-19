@@ -7,5 +7,7 @@
 <div align="center">
   <img src=Tumblr_l_1293602103167202.gif width="700">
 </div>
-<p align="center">STRAWPAGE COMING</p>
 
+<p align="center">
+  <a href=https://ribbunies.straw.page>straw page 🎀</a>
+</p>
