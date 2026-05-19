@@ -9,5 +9,5 @@
 </div>
 
 <p align="center">
-  <a href=https://ribbunies.straw.page>straw page 🎀</a>
+  <a href=https://ribbunies.straw.page>ᛝㅤ۫   ׅ  strawpage ⠀⁰ᨵᩥ⁰</a>
 </p>
