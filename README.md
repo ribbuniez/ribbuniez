@@ -1,8 +1,7 @@
-![Banner1](https://raw.githubusercontent.com/ribbuniez/ribbuniez/main/Tumblr_l_1304896126923154.gif)
+![Banner1](https://raw.githubusercontent.com/ribbuniez/ribbuniez/main/Tumblr_l_1294167941696986.jpg)
 
-
-![Banner1](https://raw.githubusercontent.com/ribbuniez/ribbuniez/main/Snapchat-1261298304.jpg) 
-<p align="center">✙ ㅤㅤ◞ㅤ ㅤart creds :ㅤkitsvx on pinterestㅤㅤㅤ⌒⌒. </p>
+![Banner1](https://raw.githubusercontent.com/ribbuniez/ribbuniez/main/ezgif-26aabc5ce178078f.gif) 
+<p align="center">✙ ㅤㅤ◞ㅤ ㅤart creds : ???ㅤㅤㅤ⌒⌒. </p>
 
 <div align="center">
   <img src=Tumblr_l_1293602103167202.gif width="700">
