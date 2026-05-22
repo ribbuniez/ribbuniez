@@ -1,6 +1,6 @@
-![Banner1](https://raw.githubusercontent.com/ribbuniez/ribbuniez/main/Tumblr_l_1294167941696986.jpg)
+![Banner1](https://raw.githubusercontent.com/ribbuniez/ribbuniez/main/)
 
-![Banner1](https://raw.githubusercontent.com/ribbuniez/ribbuniez/main/ezgif-26aabc5ce178078f.gif) 
+![Banner1](https://raw.githubusercontent.com/ribbuniez/ribbuniez/main/ezgif-8c72b821a5226f38.gif) 
 <p align="center">✙ ㅤㅤ◞ㅤ ㅤart creds : ???ㅤㅤㅤ⌒⌒. </p>
 
 <div align="center">
