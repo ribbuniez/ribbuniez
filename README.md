@@ -10,5 +10,5 @@
 </div>
 
 <p align="center">
-  <a href=https://ribbunies.straw.page>ᛝㅤ۫   ׅ  s𝓽rawpage ⠀⁰ᨵᩥ⁰</a>
+  <a href=https://</a>
 </p>
