@@ -1,4 +1,4 @@
-<p align="center">◟ ͜ ◞⠀◜ ͡ㅤart was not made by me  ! 
+<p align="center">◟ ͜ ◞⠀◜ ͡ㅤart was not made by me  ⿻  ! 
 
 ![Banner1](https://raw.githubusercontent.com/ribbuniez/ribbuniez/main/ezgif-5e2711fb02ddf513.gif)
 
