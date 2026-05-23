@@ -9,5 +9,5 @@
   <img src=Tumblr_l_1293602103167202.gif width="700">
 </div>
 
-<p align="center">remaking my strawpage ^-^>
+<p align="center">remaking my strawpage ^-^
 
