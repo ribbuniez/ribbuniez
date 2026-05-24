@@ -5,7 +5,9 @@
 </p>)
 
 
-![Banner1](https://raw.githubusercontent.com/ribbuniez/ribbuniez/main/https://ezgif-1792973a31a7c975.gif) 
+<p align="center">
+  <img src="ezgif-1792973a31a7c975.gif" width="100%">
+</p>) 
 
 <p align="center">✙ ㅤㅤ◞ㅤ ㅤar𝓉 cre𝓭s : ???ㅤㅤㅤ⌒⌒. </p>
 
