@@ -9,5 +9,9 @@
   <img src=Tumblr_l_1293602103167202.gif width="700">
 </div>
 
-<p align="center">remaking my strawpage ^-^
+<p align="center">
+  <a href="https://atabook.org/ribbuniez">
+    <img src="https://img.shields.io/badge/guestbook-ffc0cb?style=for-the-badge">
+  </a>
+</p>
 
