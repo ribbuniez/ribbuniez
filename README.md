@@ -9,7 +9,7 @@
   <img src="ezgif-1792973a31a7c975.gif" width="100%">
 </p> 
 
-<p align="center">✙ ㅤㅤ◞ㅤ ㅤar𝓉 cre𝓭s : ???ㅤㅤㅤ⌒⌒. </p>
+<p align="center">✙ ㅤㅤ◞ㅤ ㅤar𝓉 cre𝓭s : 𝓳ezz, ???, qwe𝓵ㅤan𝓭 a𝓰gresive𝓱ams𝓽er ㅤㅤ⌒⌒. </p>
 
 <div align="center">
   <img src=Tumblr_l_1293602103167202.gif width="700">
