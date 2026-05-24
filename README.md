@@ -1,10 +1,10 @@
 <p align="center">◟ ͜ ◞⠀◜ ͡ㅤar𝓽 was no𝓽 ma𝓭e 𝓫y me  ⿻  ! 
 
 
-![Banner1](https://raw.githubusercontent.com/ribbuniez/ribbuniez/main/https://files.catbox.moe/pedqko.png)
+![Banner1](https://raw.githubusercontent.com/ribbuniez/ribbuniez/main/https://Snapchat-1982895225.jpg)
 
 
-![Banner1](https://raw.githubusercontent.com/ribbuniez/ribbuniez/main/https://[) 
+![Banner1](https://raw.githubusercontent.com/ribbuniez/ribbuniez/main/https://ezgif-1792973a31a7c975.gif) 
 <p align="center">✙ ㅤㅤ◞ㅤ ㅤar𝓉 cre𝓭s : ???ㅤㅤㅤ⌒⌒. </p>
 
 <div align="center">
