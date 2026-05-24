@@ -11,7 +11,6 @@
 
 <p align="center">
   <a href="https://atabook.org/ribbuniez">
-    <img src="https://img.shields.io/badge/guestbook-ffc0cb?style=for-the-badge">
   </a>
 </p>
 
