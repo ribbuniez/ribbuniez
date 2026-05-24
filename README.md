@@ -10,7 +10,5 @@
 </div>
 
 <p align="center">
-  <a href="https://atabook.org/ribbuniez">
-  </a>
+  <a href="https://atabook.org/ribbuniez">atabook</a>
 </p>
-
