@@ -1,6 +1,6 @@
 <p align="center">◟ ͜ ◞⠀◜ ͡ㅤar𝓽 was no𝓽 ma𝓭e 𝓫y me  ⿻  ! 
 
-![Banner1](https://raw.githubusercontent.com/ribbuniez/ribbuniez/main/ezgif-5e2711fb02ddf513.gif)
+![Banner1](https://raw.githubusercontent.com/ribbuniez/ribbuniez/main/https://files.catbox.moe/pedqko.png)
 
 ![Banner1](https://raw.githubusercontent.com/ribbuniez/ribbuniez/main/https://[) 
 <p align="center">✙ ㅤㅤ◞ㅤ ㅤar𝓉 cre𝓭s : ???ㅤㅤㅤ⌒⌒. </p>
