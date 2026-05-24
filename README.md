@@ -1,7 +1,8 @@
 <p align="center">◟ ͜ ◞⠀◜ ͡ㅤar𝓽 was no𝓽 ma𝓭e 𝓫y me  ⿻  ! 
 
-
-![Banner1](https://raw.githubusercontent.com/ribbuniez/ribbuniez/main/https://Snapchat-1982895225.jpg)
+<p align="center">
+  <img src="Snapchat-1982895225.jpg" width="100%">
+</p>)
 
 
 ![Banner1](https://raw.githubusercontent.com/ribbuniez/ribbuniez/main/https://ezgif-1792973a31a7c975.gif) 
