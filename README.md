@@ -4,7 +4,6 @@
   <img src="Snapchat-1982895225.jpg" width="100%">
 </p>
 
-
 <p align="center">
   <img src="ezgif-1792973a31a7c975.gif" width="100%">
 </p> 
