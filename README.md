@@ -15,5 +15,5 @@
 </div>
 
 <p align="center">
-  <a href="https://ribbunz/">ㅤ.ㅤㅤataㅤㅤ𝜗𝜚  </a>
+  <a href="https://ribbunz/">ㅤ.ㅤㅤ𝜗𝜚  </a>
 </p>
