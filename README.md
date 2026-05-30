@@ -15,5 +15,5 @@
 </div>
 
 <p align="center">
-  <a href="https://ribbunz.atabook.org/">ㅤ.ㅤㅤataㅤㅤ𝜗𝜚  </a>
+  <a href="https://ribbunz/">ㅤ.ㅤㅤataㅤㅤ𝜗𝜚  </a>
 </p>
