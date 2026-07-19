@@ -1,17 +1,9 @@
-<p align="center">◟ ͜ ◞⠀◜ ͡ㅤar𝓽 was no𝓽 ma𝓭e 𝓫y me  ⿻  ! 
-
 <p align="center">
-  <img src="Snapchat-1982895225.jpg" width="100%">
+  <img src="Sans titre 211_20260719183706.png" width="100%">
 </p>
 
-<p align="center">
-  <img src="ezgif-1792973a31a7c975.gif" width="100%">
-</p> 
-
-<p align="center">✙ ㅤㅤ◞ㅤ ㅤar𝓉 cre𝓭s : 𝓳ezz, ???, qwe𝓵ㅤan𝓭 a𝓰gresive𝓱ams𝓽er ㅤㅤ⌒⌒. </p>
-
 <div align="center">
-  <img src=Tumblr_l_1293602103167202.gif width="700">
+  <img src=Tumblr_l_4465728387069160.gif width="700">
 </div>
 
 <p align="center">
